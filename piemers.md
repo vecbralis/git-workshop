@@ -1,1 +1,0 @@
-Te ir komanda Deserts!
